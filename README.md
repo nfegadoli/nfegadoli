@@ -9,6 +9,7 @@ meu nome é Nicolas Fegadoli Santos
 >
 >nicolasfesantos13@gmail.com
 
-![]()https://media1.tenor.com/m/VoPLkPTrdyoAAAAC/zoro-roronoa.gif
+![](https://media1.tenor.com/m/VoPLkPTrdyoAAAAC/zoro-roronoa.gif
+)
 
 
