@@ -1,4 +1,4 @@
-### boas vindas ao me perfil <3
+### boas vindos ao me perfil <3
 
 meu nome é Nicolas Fegadoli Santos 
 
@@ -10,18 +10,5 @@ meu nome é Nicolas Fegadoli Santos
 >nicolasfesantos13@gmail.com
 
 ![]()https://media1.tenor.com/m/VoPLkPTrdyoAAAAC/zoro-roronoa.gif
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
